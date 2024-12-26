@@ -13,6 +13,8 @@ Lightweight and Fast – Shizuku APK doesn’t hog your storage or slow down you
 Secure and Safe– Safeguard your data while enjoying advanced functionality.
 
 Free to Download for Android Users – Enjoy all these features without spending a penny!
+
+
 ![enter image description here](https://img.utdstc.com/screen/164/461/164461dd12be7f41881c12ec16e6a93113b7112fa391a0a85a81ec1f21bc6ff2:200)
 ![enter image description here](https://img.utdstc.com/screen/de3/ce8/de3ce81d1b56f2444c6a519d6363e0f8bbb76477b7591c0d2fcd35eb5760d73a:200)
 ![enter image description here](https://img.utdstc.com/screen/7c6/4db/7c64db229a1670c5c690a7859f99c085c8375ce69f99f1590b2d204e3a57f5d0:200)
